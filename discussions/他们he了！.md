@@ -1,5 +1,5 @@
 # 他们he了！
-Tiffany, 2022-03-10 23:22:24
+账号 已主消, 2022-03-10 23:22:24
 #### ['\n', <p data-align="left">🐶自己回应的文章里，强调了他的婚姻存续时间，分居是在19年8月5号。</p>, <div class="image-container image-float-center"><div class="image-wrapper"><img height="auto" src="https://img9.doubanio.com/view/group_topic/l/public/p534207828.jpg" width="500"/></div></div>, <p data-align="left">本来我觉得这人真的挺有意思的，分居时间还精确到日期，直到我去看了☁️的微博。</p>, <p data-align="left">在🐶分居的第二天☁️微博发了一张哪吒，“谁还不会画哪吒了”听起来非常像是在回应某人。然后我发现他在评论区还发了一张。</p>, <div class="image-container image-float-center"><div class="image-wrapper"><img height="auto" src="https://img9.doubanio.com/view/group_topic/l/public/p534207801.jpg" width="500"/></div></div>, <div class="image-container image-float-center"><div class="image-wrapper"><img height="auto" src="https://img9.doubanio.com/view/group_topic/l/public/p534207806.jpg" width="500"/></div></div>, <p data-align="left">这张图的画笔是放在左边的，而且从落笔来看，确实也是个左撇子画的。谁是用左手画画的左撇子呢？</p>, <p data-align="left">19年下半年追着☁️开演唱会，其中有一场11月9号他们在绍兴同城。某人发了一条微博。</p>, <div class="image-container image-float-center"><div class="image-wrapper"><img height="auto" src="https://img9.doubanio.com/view/group_topic/l/public/p534207812.jpg" width="496"/></div></div>, <p data-align="left">20年7月🐶下场告了13年就be的cpf；8月☁️上节目唱了背叛，其中有两句歌词没唱“你比我清楚还要我说明白，爱太深会让人疯狂的勇敢，我用背叛自己完成你的期盼”。</p>, <p data-align="left">21年3月2号☁️微博分享 夜晚的潜水艇 王丽红我爱你</p>, <div class="image-container image-float-center"><div class="image-wrapper"><img height="auto" src="https://img9.doubanio.com/view/group_topic/l/public/p534207823.jpg" width="500"/></div></div>, <div class="image-container image-float-center"><div class="image-wrapper"><img height="auto" src="https://img9.doubanio.com/view/group_topic/l/public/p534207804.jpg" width="500"/></div></div>, <p data-align="left">21年6月20号🐶在微博发了一篇诗.；21号开始☁️连续发了好几天看云的微博。</p>, <div class="image-container image-float-center"><div class="image-wrapper"><img height="auto" src="https://img9.doubanio.com/view/group_topic/l/public/p534207814.jpg" width="500"/></div></div>, <p data-align="left">21年9月☁️上披哥穿蝴蝶衣服，微博也po出来。</p>, <div class="image-container image-float-center"><div class="image-wrapper"><img height="auto" src="https://img9.doubanio.com/view/group_topic/l/public/p534207808.jpg" width="500"/></div></div>, <div class="image-container image-float-center"><div class="image-wrapper"><img height="auto" src="https://img9.doubanio.com/view/group_topic/l/public/p534207816.jpg" width="500"/></div></div>, <p data-align="left">21年10月21号☁️出事，官方通报。🐶上线15分钟，一言不发下线。🐶工作室点赞朝阳区警方微博。买票24号飞LA。当时飞美国需要三天内核酸证明，且因为疫情只有周三，周日有航班，24号正好是个周日。呆了一周回来继续隔离 参加大陆这边的工作，直到事发回台湾。</p>, <div class="image-container image-float-center"><div class="image-wrapper"><img height="auto" src="https://img9.doubanio.com/view/group_topic/l/public/p534207818.jpg" width="500"/></div></div>, <p data-align="left">有意思的是李惊雷公布他买网军的证据截止到10月24号。</p>, <p data-align="left">25号惊雷被踢出公司。</p>, <div class="image-container image-float-center"><div class="image-wrapper"><img height="auto" src="https://img9.doubanio.com/view/group_topic/l/public/p534207819.jpg" width="500"/></div></div>, <p data-align="left">工作室10.15号还在买全家出游的通稿。</p>, <div class="image-container image-float-center"><div class="image-wrapper"><img height="auto" src="https://img9.doubanio.com/view/group_topic/l/public/p534207821.jpg" width="500"/></div></div>, <p data-align="left">起码在这之前，🐶还是没有决定要公布离婚的。是什么让他加快了离婚的脚步，不惜打脸经纪人也要公布离婚？</p>, <p data-align="left">15号公布离婚，17号李惊雷发小作文。12月20号道歉，事情第一阶段停息。</p>, <p data-align="left">就在🐶自己家破事一堆焦头烂额的时候，这家伙居然有心思12月31号中午上线，卡点12点31下线。</p>, <div class="image-container image-float-center"><div class="image-wrapper"><img height="auto" src="https://img9.doubanio.com/view/group_topic/l/public/p534207825.jpg" width="500"/></div></div>, <div class="image-container image-float-center"><div class="image-wrapper"><img height="auto" src="https://img9.doubanio.com/view/group_topic/l/public/p534207829.jpg" width="500"/></div></div>, <p data-align="left">……大家见仁见智吧……</p>, <p data-align="left">【以下补充两个是我自己的看法】</p>, <p data-align="left">李惊雷说🐶是19年台北演唱会后逼她离婚。</p>, <p data-align="left">波西米亚狂想曲的背景，歌词含义有兴趣的可以自行了解一下。王妈妈要是真的哭了的话，大概真的能理解儿子了吧。</p>, <div class="image-container image-float-center"><div class="image-wrapper"><img height="auto" src="https://img9.doubanio.com/view/group_topic/l/public/p534207800.jpg" width="500"/></div></div>, <p data-align="left">包括王爸爸在回应的手写信中提到的“不在乎”，我有理由相信，王应该是得到了父母的首肯，并且支持他离婚。</p>, <div class="image-container image-float-center"><div class="image-wrapper"><img height="auto" src="https://img9.doubanio.com/view/group_topic/l/public/p534207809.jpg" width="500"/></div></div>, <p data-align="left">……暂时就想起来这么多，回头再补充</p>, '\n']
 ======================================
 
@@ -56,10 +56,10 @@ pic: (https://img9.doubanio.com/view/richtext/large/public/p318181548.jpg)
 ###### [aysl]: 哥鸟巢牵手起立的动图哪位uu还有吗？正在给朋友安利哈哈哈找不到了
 ---------------------------------------
 
-###### [Tiffany]: 我这个帖子说啥了……发太多我有点忘记了😂
+###### [账号 已主消]: 我这个帖子说啥了……发太多我有点忘记了😂
 ---------------------------------------
 
-###### [Tiffany]: 我没存，但我可以凭着记忆再发一遍🤣
+###### [账号 已主消]: 我没存，但我可以凭着记忆再发一遍🤣
 ---------------------------------------
 
 ###### [小麦]: 这个行吗
@@ -168,5 +168,14 @@ pic: (https://img9.doubanio.com/view/richtext/raw/public/p318908480.jpg)
 ---------------------------------------
 
 ###### [捂住眼睛]: 哈哈哈，这段昨天早上发的，可能涉及zz了今天才被放出来。还是专心在组里磕糖了，毕竟俺们是小甜蛾。😋
+---------------------------------------
+
+###### [YQ]: 哈哈哈哈，你get到了重点
+---------------------------------------
+
+###### [沈仒涵]: 👆的态度从老友记删减就能看出来 关于lgbt的内容几乎全无 这可是二十年前的电视剧啊
+---------------------------------------
+
+###### [蟹粉小汤圆]: 顶此帖，不管什么事emo了 看到这个帖子蛾子就又加满血了！
 ---------------------------------------
 
