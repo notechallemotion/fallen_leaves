@@ -13,6 +13,6 @@ Please find all discussion snapshots in folder './discussions'.
 ### Update Log
 
 - Last Update:
-  - 2022.03.23
+  - 2022.03.30
   - Filter condition: elite discussion || reply count >= 70
-  - 208 discussions
+  - 278 discussions
